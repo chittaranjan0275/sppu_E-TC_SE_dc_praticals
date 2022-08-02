@@ -1,0 +1,1 @@
+# sppu_E-TC_SE_dc_praticals
